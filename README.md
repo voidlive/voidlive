@@ -1,5 +1,4 @@
-## Hi there 👋
-# 👾 **Welcome to the Void, where things get *dirty*...** 🕶️💻
+# 👾 **Welcome to the LIFE, where things get *VOID*...** 🕶️💻
 
 ---
 
