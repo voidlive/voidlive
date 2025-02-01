@@ -1,12 +1,8 @@
 # 👾 **Welcome to the LIFE, where things get *VOID*...** 🕶️💻
 
----
-
 ## 💀 **Who Am I?**  
 I go by **VoidLife_0x** 👀. A digital enigma floating through the infinite cyber void. If you're reading this, you're already tangled in my web. 😈  
 **P.S.** I promise, the only thing I infect is your curiosity. 🖤
-
----
 
 ## ⚡ **What I Do**  
 - 🕵️ **Exploring the Unknown**—I love to poke around places where others fear to click.  
